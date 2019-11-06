@@ -1,1 +1,1 @@
-know yourself dh
+KNOW YOURSELF DH!
